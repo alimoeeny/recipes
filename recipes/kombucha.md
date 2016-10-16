@@ -1,0 +1,3 @@
+- 4 l. water
+- 8 tea bags
+- 2 cups of sugar
